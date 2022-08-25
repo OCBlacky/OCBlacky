@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OCBlacky
-- 👀 I’m interested in coding, police, roleplay and fivem
+- 👀 Please do not use any of the products I produce by selling them, use them for personal only thanks
 - 🌱 I’m currently learning how to code in the lua language
 - 📫 How to reach me here is my email: crewe2707@gmail.com
 - Then here is my discord OCBlacky#5753
